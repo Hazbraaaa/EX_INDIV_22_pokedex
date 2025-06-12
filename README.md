@@ -1,0 +1,1 @@
+# EX_INDIV_22_pokedex
